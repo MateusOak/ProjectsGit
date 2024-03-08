@@ -1,0 +1,1 @@
+Nao gosto de negros
